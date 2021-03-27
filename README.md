@@ -13,7 +13,8 @@ I'm originally from Boston/Paris but based in Berlin and speak 🇺🇸 🇫🇷
 
 
 
-
+  
+    
     
 💧 You can find my contact information by downloading my resume on my website: chamley.dev 💧
 
